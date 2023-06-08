@@ -1,1 +1,1 @@
-Doing hard things
+Hard work dey pay
