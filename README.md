@@ -1,1 +1,1 @@
-Hard work dey pay
+ALX is hard
